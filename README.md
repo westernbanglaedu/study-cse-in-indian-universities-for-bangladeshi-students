@@ -41,4 +41,4 @@ This project is licensed under the **MIT License** — see the [LICENSE](LICENSE
 
 ## ⚠️ Disclaimer
 All fees, scholarships, and program details are subject to change.  
-For the most accurate and updated information, contact WBE directly through the official website.
+For the most accurate and updated information, contact [**Western Bangla Education (WBE)**](https://www.westernbanglaedu.co.in) directly through the official website.
